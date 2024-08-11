@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Sankyuku
 - 👀 I’m interested in animation and simple games.
-- 🌱 I’m currently learning fine arts in the UGR.
+- 🌱 Junior Rigger and Mocap Tech
